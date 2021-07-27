@@ -1,7 +1,7 @@
 # Life is to make choices
 
 [![image description](https://i.imgur.com/seWfV2J.jpg
-"A cute doggo (obviously!)")](https://github.com/tom789726)
+"A cute doggo (obviously!)")](https://www.facebook.com/delay.n.more.9/)
 
 - 👋 Hi, I’m @tom789726
 
