@@ -19,7 +19,9 @@
 
 Email: tom789726@gmail.com
 
-Facebook: 火柴
+Linkedin: www.linkedin.com/in/jerryKC
+
+Facebook: www.facebook.com/delay.n.more.9/
 
 <!---
 tom789726/tom789726 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
