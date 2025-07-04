@@ -3,6 +3,7 @@
 [![image description](https://i.imgur.com/seWfV2J.jpg
 "A cute doggo (obviously!)")](https://github.com/tom789726)
 
+熟練基本功 萬變不離宗
 
 Email: tom789726@gmail.com
 
