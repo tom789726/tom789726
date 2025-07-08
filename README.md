@@ -1,4 +1,4 @@
-# Life is a making of choices
+# Take your own leash
 
 [![image description](https://i.imgur.com/seWfV2J.jpg
 "A cute doggo (obviously!)")](https://github.com/tom789726)
